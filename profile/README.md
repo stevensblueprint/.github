@@ -6,4 +6,4 @@
 
 📫 Get in touch - hello@sitblueprint.com
 
-🌐 Check out our website: [sitblueprint.com](sitblueprint.com)
+🌐 Check out our website: [sitblueprint.com](http://www.sitblueprint.com)
