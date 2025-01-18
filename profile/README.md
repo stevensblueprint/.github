@@ -4,6 +4,6 @@
 
 🧑‍🔬 We're devoted to matching the skills of its members to our desire to see social good enacted in our community.
 
-📫 Get in touch - hello@sitblueprint.com
+📫 Get in touch - sit.blueprint@gmail.com
 
 🌐 Check out our website: [sitblueprint.com](http://www.sitblueprint.com)
