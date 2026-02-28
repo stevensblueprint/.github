@@ -2,7 +2,7 @@
 
 👋 Stevens Blueprint is a student-run organization at Stevens Institute of Technology.
 
-🧑‍🔬 We're devoted to matching the skills of its members to our desire to see social good enacted in our community.
+🧑‍🔬 At Blueprint, we strive to make technology accessible and useful for those who create communities and promote public welfare.
 
 📫 Get in touch - blueprint@stevens.edu
 
